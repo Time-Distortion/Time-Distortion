@@ -1,4 +1,4 @@
-hey this is my freind who recently released their debut album! pls go listen to them!
+hey this is my freind who is trying to make music, pls go listen to them!
 
 https://x.com/venomfirexd
 
